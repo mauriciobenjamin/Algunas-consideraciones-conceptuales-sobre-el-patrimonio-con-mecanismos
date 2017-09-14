@@ -1,1 +1,1 @@
-La pala
+La palab
