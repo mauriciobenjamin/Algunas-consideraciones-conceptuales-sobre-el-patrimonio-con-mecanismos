@@ -2,4 +2,4 @@ La palabra mecanismo, evidentemente proviene de mecánica, la cual viene del lat
 
 Como se puede inferir, el vocablo ha estado relacionado a la acción y especialmente la posibilidad de la acción, en consecuencia a las condiciones necesarias para que algo se realice. Es interesante notar como la palabara "magia" esta entonces relacionada con "mecánica" como dos formas de hacer.
 
-En consecuencia. 
+En consecuencia
