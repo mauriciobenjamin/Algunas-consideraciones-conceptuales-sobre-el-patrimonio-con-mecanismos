@@ -1,1 +1,1 @@
-La palabra mecanismo, e
+La palabra mecanismo, evidentemente proviene de mec
