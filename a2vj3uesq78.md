@@ -1,1 +1,1 @@
-La palabra mec
+La palabra mecanismo 
