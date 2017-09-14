@@ -1,1 +1,1 @@
-La palabra mecanismo, evidentemente proviene de mecánic
+La palabra mecanismo, evidentemente proviene de mecánica
