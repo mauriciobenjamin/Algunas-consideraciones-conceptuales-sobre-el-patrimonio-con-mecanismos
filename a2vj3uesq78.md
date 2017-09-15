@@ -4,4 +4,4 @@ Como se puede inferir, el vocablo ha estado relacionado a la acción y especialm
 
 En consecuencia, un mecanismo es algo que hace, pero a la vez, es algo que posibilita el hacer. A diferencia de otros objetos, no es un mero medio, sino que lleva a cabo algún tipo de acción física para cumplir su proposito.
 
-La noción de que el mecanismo por si solo era ca
+La noción de que el mecanismo por si solo era capa
