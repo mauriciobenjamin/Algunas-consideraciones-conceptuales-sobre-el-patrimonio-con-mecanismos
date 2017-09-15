@@ -3,3 +3,4 @@ La palabra mecanismo, evidentemente proviene de mecánica, la cual viene del lat
 Como se puede inferir, el vocablo ha estado relacionado a la acción y especialmente la posibilidad de la acción, en consecuencia, a las condiciones necesarias para que algo se realice. Es interesante notar como la palabara "magia" esta relacionada, etimológicamente, con "mecánica" como dos formas de hacer.
 
 En consecuencia, un mecanismo es algo que hace, pero a la vez, es algo que posibilita el hacer. A diferencia de otros objetos, no es un mero medio, sino que lleva a cabo algún tipo de acción física.
+
