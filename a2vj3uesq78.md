@@ -6,5 +6,5 @@ En consecuencia, un mecanismo es algo que hace, pero a la vez, es algo que posib
 
 ## Redes de acción y trayectorias
 
-La teoría del actor red pretende entender a la sociedad no como una entidad formada tauro
+La teoría del actor red pretende entender a la sociedad no como una entidad formada tautolo
 
