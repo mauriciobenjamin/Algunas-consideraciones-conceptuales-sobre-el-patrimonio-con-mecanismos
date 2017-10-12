@@ -7,3 +7,4 @@ En consecuencia, un mecanismo es algo que hace, pero a la vez, es algo que posib
 ## Redes de acción y trayectorias
 
 
+
