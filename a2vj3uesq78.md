@@ -6,6 +6,6 @@ En consecuencia, un mecanismo es algo que hace, pero a la vez, es algo que posib
 
 ## Redes de acción y trayectorias
 
-La teoría del actor red pretende entender a la sociedad no como una entidad formada tautologicamente por "interacciones sociales" sino por asociaciones entre entidades, las que generalmente son de corta duración y por lo mismo díficiles de sostener en el tiempo. Al constatar la dificultar de que los vínculos sociales se expandan de modo duradero, los objetos adquieren un rol verosímil, a diferencia de los modelos que ven en las fuerzas sociales los elementos coligativos de lo social. Esto no se debe interpretar como un determinismo t\cite{latour_reensamblar_2008}
+La teoría del actor red pretende entender a la sociedad no como una entidad formada tautologicamente por "interacciones sociales" sino por asociaciones entre entidades, las que generalmente son de corta duración y por lo mismo díficiles de sostener en el tiempo. Al constatar la dificultar de que los vínculos sociales se expandan de modo duradero, los objetos adquieren un rol verosímil, a diferencia de los modelos que ven en las fuerzas sociales los elementos coligativos de lo social. Esto no se debe interpretar como un determinismo técnico o \cite{latour_reensamblar_2008}
 
 
