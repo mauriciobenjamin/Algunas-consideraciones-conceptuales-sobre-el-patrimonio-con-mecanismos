@@ -8,7 +8,7 @@ Este ethos esta definido por:
 
 + El imperativo de una formación especifica.
 + La pretención de objetividad a través del estudio sistemático
-+ El reconocimiento del carácter excepcional del bien a conservar
++ El reconocimiento del carácter excepcional del bien a conservar, 
 + histórico, estético, funcional e intangible, de acuerdo a su unidad potencial, para reestablecer su significado genuino y asegurar su comprensión, su continuación, su transmisión, y correspondiente sitio en el futuro como testimonio de la evolución humana.\cite{rocha_reyes_iconografiy_1997}
 + Proteger las fuentes objetivas del conocimiento histórico y garantizar la permanencia de las evidencias en que se fundamenta nuestra identidad.
 
