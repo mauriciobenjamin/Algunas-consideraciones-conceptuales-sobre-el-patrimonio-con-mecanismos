@@ -10,3 +10,4 @@ Para efectos de este trabajo, la restauración comprende las acciones de caráct
 + Proteger las fuentes objetivas del conocimiento histórico y garantizar la permanencia de las evidencias en que se fundamenta nuestra identidad.
 
 Es evidente que en ningún momento se pretende regresar a los bienes culturales a un estado anterior, por el contrario, sólo se hace inteligible el estado actual de los mismos, tomando en cuenta los argumentos que puntualizo en este capítulo.
+
