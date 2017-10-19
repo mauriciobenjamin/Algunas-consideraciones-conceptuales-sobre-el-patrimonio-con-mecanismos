@@ -12,7 +12,6 @@ Este ethos esta definido por:
 + Es una acción intencionada definida por sus fines, no por los método de ejecucción.
 + Uno de sus fines será el conocimiento de los objetos como elementos dentro de un entramado social, en la historia y en la memoria.
 
-Para examinar teorías y metodologías es necesario tener claro el objetivo de su aplicación. En el caso de los instrumentos musicales, es preciso su reconocimiento previo con todas las implicaciones que esto pueda tener para su conservación.
 
 Los instrumentos musicales son objetos con valor cultural. Pero ¿quién decide o cuáles son los criterios para dar a un instrumento la categoría de bien cultural? Cada pueblo a lo largo de su historia, rescata y toma de su pasado y presente los elementos que lo sustentan. Un instrumento musical forma parte del patrimonio de un grupo social, cuando éste se apropia de él, en un proceso de legitimación de sus elementos culturalmente representativos. Como lo señala Chanfón, “una sociedad se identifica por su cultura, y la prueba objetiva de su individualidad es precisamente su patrimonio cultural. Protegerlo es cuidar los testimonios de su identidad.”15
 
