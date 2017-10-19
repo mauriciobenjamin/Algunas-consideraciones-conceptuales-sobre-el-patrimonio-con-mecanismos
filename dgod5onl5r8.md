@@ -6,7 +6,7 @@ Es el conservador quien realiza dicha interpretación, sin lo cual no podría de
 
 Para efectos de este trabajo, la restauración comprende las acciones de carácter profesional llevadas a cabo en la materia constitutiva de los bienes culturales, cuyos objetivos esenciales se puntualizan a partir de lo que han expresado Rocha y Vega, así como Chanfón:
 
-+ Detener y estabilizar los agentes y mecanismos que producen el deterioro de los materiales constitutivos [lo que sería propiamente conservación]. Reconocer y revelar la imagen del bien cultural en sus planos: histórico, estético, funcional e intangible, de acuerdo a su unidad potencial, para reestablecer su significado genuino y asegurar su comprensión, su continuación, su transmisión, y correspondiente sitio en el futuro como testimonio de la evolución humana.
++ Detener y estabilizar los agentes y mecanismos que producen el deterioro de los materiales constitutivos [lo que sería propiamente conservación]. Reconocer y revelar la imagen del bien cultural en sus planos: histórico, estético, funcional e intangible, de acuerdo a su unidad potencial, para reestablecer su significado genuino y asegurar su comprensión, su continuación, su transmisión, y correspondiente sitio en el futuro como testimonio de la evolución humana.\cite{rocha_reyes_iconografiy_1997}
 + Proteger las fuentes objetivas del conocimiento histórico y garantizar la permanencia de las evidencias en que se fundamenta nuestra identidad.12
 
 Es evidente que en ningún momento se pretende regresar a los bienes culturales a un estado anterior, por el contrario, sólo se hace inteligible el estado actual de los mismos, tomando en cuenta los argumentos que puntualizo en este capítulo.
