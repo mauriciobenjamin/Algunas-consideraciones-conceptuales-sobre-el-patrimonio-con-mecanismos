@@ -7,7 +7,7 @@ Es el conservador este acto crítico es una interpretación por medio de la cual
 Este ethos esta definido por:
 
 + El imperativo de una formación especifica.
-+ La pretención de objetividad a través del estudio sistemático del ob
++ La pretención de objetividad a través del estudio sistemático del objeto
 + El reconocimiento de la identidad excepcional del bien a conservar
 
 La restauración es una acción intencionada definida por sus fines, no por los método de ejecucción. Uno de sus fines será el conocimiento de los objetos como elementos dentro de un entramado social, en la historia y en la memoria.
