@@ -9,8 +9,6 @@ Este ethos esta definido por:
 + El imperativo de una formación especifica.
 + La pretención de objetividad a través del estudio sistemático
 + El reconocimiento de la identidad excepcional del bien a conservar
-+ 
-+ Proteger las fuentes objetivas del conocimiento histórico y garantizar la permanencia de las evidencias en que se fundamenta nuestra identidad.
 
 La restauración es una acción intencionada definida por sus fines, no por los método de ejecucción. Uno de sus fines será el conocimiento de los objetos como elementos dentro de un entramado social, en la historia y en la memoria.
 
