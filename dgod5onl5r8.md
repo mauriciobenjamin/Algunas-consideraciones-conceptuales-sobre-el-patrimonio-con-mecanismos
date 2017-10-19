@@ -1,6 +1,6 @@
 La Conservación –en su acepción más amplia- comprende todas las actividades y medidas necesarias para aumentar la esperanza de vida de los bienes culturales, esto es, mantenerlos o controlarlos en el mejor estado posible. \cite{guillemard_editorial_1992}
 
-La conservación es fundamentalmente un acto crítico de selección de valoraciones, que se convierte en críterios prácticos para
+La conservación es fundamentalmente un acto crítico de selección de valoraciones, que se convierte en críterios prácticos para la a
 
 Es el conservador quien realiza dicha interpretación, sin lo cual no podría definir el objetivo de su trabajo, ni pretender que éste responda a las necesiddades que la sociedad demanda. De ello deriva su responsabilidad de ser el vínculo entre la memoria histórica que honestamente debe transmitir en las mejores condiciones posibles, el uso actual de los objetos, y las generaciones futuras. Esto fortalce a la Conservación como actividad primordial en la salvaguarda del patrimonio cultural mexicano, lo que demanda que sea una actividad profesional.
 
