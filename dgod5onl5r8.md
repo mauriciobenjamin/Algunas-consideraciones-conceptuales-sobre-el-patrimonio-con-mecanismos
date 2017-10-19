@@ -2,7 +2,7 @@ La Conservación –en su acepción más amplia- comprende todas las actividades
 
 La conservación es fundamentalmente un acto crítico de selección de valoraciones, que se convierte en críterios prácticos para la acción que lleve a perpetuar la presencia de dichos valores, representada en los objetos. Pero siendo el objeto el continente asignado, reviste valor por si mismo, ligado intrinsecamente por su valoración como entidad única o al menos identica a si misma. 
 
-Es el conservador este acto crítico es una interpretación por medio de la cual se define una finalidad al acto mismo de conservar y al mismo tiempo se le liga con la sociedad a la que se le define como receptora de dicho mensaje. Esto lo convierte en un mediador entre los elementos fácticos depositados en los objetos que conserva y la memoría que el objeto materializa. Esta actividad de media
+Es el conservador este acto crítico es una interpretación por medio de la cual se define una finalidad al acto mismo de conservar y al mismo tiempo se le liga con la sociedad a la que se le define como receptora de dicho mensaje. Esto lo convierte en un mediador entre los elementos fácticos depositados en los objetos que conserva y la memoría que el objeto materializa. Esta actividad de mediación 
 
 Para efectos de este trabajo, la restauración comprende las acciones de carácter profesional llevadas a cabo en la materia constitutiva de los bienes culturales, cuyos objetivos esenciales se puntualizan a partir de lo que han expresado Rocha y Vega, así como Chanfón:
 
