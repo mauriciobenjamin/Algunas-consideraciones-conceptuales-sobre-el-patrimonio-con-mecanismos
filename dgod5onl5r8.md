@@ -10,6 +10,7 @@ Este ethos esta definido por:
 + La pretención de objetividad a través del estudio sistemático del objeto
 + El reconocimiento de la identidad excepcional del bien a conservar
 + Es una acción intencionada definida por sus fines, no por los método de ejecucción.
++ 
 + Uno de sus fines será el conocimiento de los objetos como elementos dentro de un entramado social, en la historia y en la memoria.
 
 Para examinar teorías y metodologías es necesario tener claro el objetivo de su aplicación. En el caso de los instrumentos musicales, es preciso su reconocimiento previo con todas las implicaciones que esto pueda tener para su conservación.
