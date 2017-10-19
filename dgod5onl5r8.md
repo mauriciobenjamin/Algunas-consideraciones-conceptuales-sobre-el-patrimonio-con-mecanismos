@@ -6,7 +6,7 @@ Es el conservador este acto crítico es una interpretación por medio de la cual
 
 Este ethos esta definido por:
 
-+ El impertivo de una formación especifica.
++ El imperativo de una formación especifica.
 + Detener y estabilizar los agentes y mecanismos que producen el deterioro de los materiales constitutivos [lo que sería propiamente conservación]. Reconocer y revelar la imagen del bien cultural en sus planos: histórico, estético, funcional e intangible, de acuerdo a su unidad potencial, para reestablecer su significado genuino y asegurar su comprensión, su continuación, su transmisión, y correspondiente sitio en el futuro como testimonio de la evolución humana.\cite{rocha_reyes_iconografiy_1997}
 + Proteger las fuentes objetivas del conocimiento histórico y garantizar la permanencia de las evidencias en que se fundamenta nuestra identidad.
 
